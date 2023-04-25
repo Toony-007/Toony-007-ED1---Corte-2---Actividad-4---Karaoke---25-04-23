@@ -1,1 +1,0 @@
-Imagen de la central tomada de: http://www.cartellaclinicabracco.it/cm/img/img_home.gif
